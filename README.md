@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about nothing
 - 📫 How to reach me: DC: Ungläubig#7764
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: 
+- ⚡ Fun fact: gay
 
