@@ -10,7 +10,7 @@ I'm also a really big N00B in using it. 🦧
 - 👯 I’m looking to collaborate on <a href="https://github.com/jonas-koll">@jonas-koll</a>'s project
 - 🤔 I’m looking for help with everything
 - 💬 Ask me about nothing
-- 📫 How to reach me: DC: Ungläubig#7764
+- 📫 How to reach me: DC: mika.#8745
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: gay
+- ⚡ Fun fact: ultra gay 💅
 
